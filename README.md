@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the annalysis of new sistems
 - 📫 How to reach me: email me on viniciusalves11106@gmail.com
 - 😄 Pronouns: he
-- ⚡ Fun fact: I don't know how I learned the majority of my english
+- ⚡ Fun fact: I love clocks
 
 <!---
 ViniciusAlves11106/ViniciusAlves11106 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
